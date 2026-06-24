@@ -1,4 +1,4 @@
-# Hello-World_2026_藤野ryosei
+# Hello-World_2026_藤野
 TEST
 りんごちーず
 ccc
